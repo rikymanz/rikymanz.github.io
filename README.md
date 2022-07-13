@@ -1,1 +1,0 @@
-# rikymanz.github.io
